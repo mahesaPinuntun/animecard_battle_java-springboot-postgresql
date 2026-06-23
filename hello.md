@@ -1,0 +1,1 @@
+Halo, saya dari JNE Express. Mohon maaf, hari ini saya tidak sempat mengantar paket shopee DILDO JUMBO UKURAN 30CM dengan no. resi SPXID041125390869 karena pengecekan barang rutin oleh kurir. Saya akan mengirim kembali esok hari ya.
